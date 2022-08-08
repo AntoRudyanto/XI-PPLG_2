@@ -1,4 +1,4 @@
 # XI-PPLG_2
 NAMA  : ANTO RUDYANTO 
 KELAS : XI PPLG 2
-Alamat : Desa Cimahi 
+HOBI  : MEMANCING 
